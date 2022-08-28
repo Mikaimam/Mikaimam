@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mikaimam
-- 👀 I’m interested in codin
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning software engineering
 - 💞️ I’m looking to collaborate on soft ware projects
 - 📫 How to reach me mikail3398@gmail.com
